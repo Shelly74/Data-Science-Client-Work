@@ -1,4 +1,4 @@
-# Data-SciencE Client Work ......... From Shelly Maan Singh Rajpoot Garg(Kanhiya Romeo Garg)
+# Data-SciencE Client Work ......... https://github.com/Shelly74/Data-Science-Client-Work
 
 
 ![alt text]

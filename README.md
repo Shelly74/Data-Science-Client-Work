@@ -68,6 +68,6 @@ MIT
 
 # Help
 
-If you find any mistakes or you can't figure out something, raise a question. I will get back to you as soon as possible. If you liked what you saw, want to have a chat with me about the portfolio, work opportunities, or collaboration
+If you find any mistakes or you can't figure out something, raise a question. I will get back to you as soon as possible. If you liked what you saw, want to have a chat with me about the portfolio, work opportunities, or collaboration g.mail :- shellygarg687@gmail.com
 :mag_right:
 
